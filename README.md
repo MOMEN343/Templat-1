@@ -1,1 +1,1 @@
-This is the first Template trying to remember things and code something inder genocide .
+This is the first Template trying to remember things and code something under genocide .
